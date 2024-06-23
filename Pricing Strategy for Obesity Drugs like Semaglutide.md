@@ -97,4 +97,4 @@
 This project will equip Minji with essential skills in pricing strategy, market research, and stakeholder engagement, making her a strong candidate for roles in big pharma.
 
 
-I want to make a try.
+I want to make a try.km
